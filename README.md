@@ -1,1 +1,1 @@
-# nxtzzz-Abuzarov.GraduateProject
+# Abuzarov.GraduateProject
